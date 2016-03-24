@@ -7,15 +7,15 @@ January - March
 
 Quarter 2 
 April - June
-## Availability: Yes
+## Availability: Through out
 
 Quarter 3 
 July - September
-## Availability: Yes
+## Availability: Through out
 
 Quarter 4
 October - December
-## Availability: Yes
+## Availability: Through out
 
 Also, please provide a link to your LinkedIn or other online resume. Thanks!
-### Link to LinkedIn: http://www.linkedin.com/in/shantanudeepdatta
+### Link to LinkedIn: https://www.linkedin.com/in/sunny-patel-21923137
